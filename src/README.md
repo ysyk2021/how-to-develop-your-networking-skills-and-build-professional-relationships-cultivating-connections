@@ -6,5 +6,4 @@ This book, "How to Develop Your Networking Skills and Build Professional Relatio
 
 Whether you're just starting your career, looking to advance to the next level, or seeking to expand your network, this book will provide you with practical tips and advice for developing your networking skills and cultivating connections that can lead to long-term success.
 
-
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
