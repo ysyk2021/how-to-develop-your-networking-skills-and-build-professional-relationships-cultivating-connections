@@ -1,5 +1,3 @@
-Chapter 9: Maintaining and Nurturing Professional Relationships
-===============================================================
 
 Maintaining and nurturing professional relationships is crucial for long-term success. In this chapter, we will explore strategies for maintaining professional relationships, nurturing connections, and building community.
 

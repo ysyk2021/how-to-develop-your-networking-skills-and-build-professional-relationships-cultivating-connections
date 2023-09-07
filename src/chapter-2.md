@@ -1,5 +1,3 @@
-Chapter 2: Identifying Your Goals and Target Audience
-=====================================================
 
 Identifying Your Goals and Target Audience
 ------------------------------------------

@@ -1,5 +1,3 @@
-Strategies for Maintaining Professional Relationships, Nurturing Connections, and Building Community
-=====================================================================================================================================================================
 
 Maintaining professional relationships, nurturing connections, and building community are all essential components of successful networking. In this chapter, we will explore strategies for accomplishing these goals.
 

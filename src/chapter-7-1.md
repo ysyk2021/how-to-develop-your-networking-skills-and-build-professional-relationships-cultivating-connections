@@ -1,5 +1,3 @@
-Developing Mentoring and Coaching Relationships
-==========================================================
 
 In this chapter, we'll explore the benefits of mentoring and coaching relationships for professional development, and strategies for building effective mentoring and coaching relationships that support your career goals.
 

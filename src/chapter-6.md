@@ -1,5 +1,3 @@
-Chapter 6: Building Trust and Creating Value
-============================================
 
 Networking is more than just making connections. To be successful in building a professional network, it's important to build trust and create value for those in your network. In this chapter, we'll explore strategies for creating value, building trust, and offering support to establish meaningful relationships with other professionals in your industry.
 

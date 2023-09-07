@@ -1,5 +1,3 @@
-Chapter 1: Introduction
-=======================
 
 Networking and building professional relationships are essential for career growth and success. In this chapter, we'll explore the importance of networking skills and professional relationships in your career, define key concepts related to networking and professional relationships, and highlight the benefits of developing these skills.
 

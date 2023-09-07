@@ -1,5 +1,3 @@
-Chapter 8: Leveraging Professional Relationships for Career Advancement
-=======================================================================
 
 Building professional relationships is instrumental in career advancement. In this chapter, we will explore strategies for leveraging professional relationships to advance your career.
 
