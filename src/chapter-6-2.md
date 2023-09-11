@@ -1,5 +1,4 @@
-Chapter: Strategies for Creating Value, Building Trust, and Offering Support
-============================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore effective strategies for creating value, building trust, and offering support in the context of developing networking skills and building professional relationships. These strategies lay the foundation for cultivating meaningful connections that contribute to your success.
 
